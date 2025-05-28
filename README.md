@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sauravkumarsing2004@gmail.com**
 
-- ⚡ Fun fact **I am also a good sketch artist.**
+- ⚡ Fun fact **I am also a good sketch artist and have started writing poems.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
